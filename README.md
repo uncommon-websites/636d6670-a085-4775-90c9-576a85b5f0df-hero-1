@@ -1,0 +1,2 @@
+# 636d6670-a085-4775-90c9-576a85b5f0df-hero-1
+Hero section variant 1 for 636d6670-a085-4775-90c9-576a85b5f0df
